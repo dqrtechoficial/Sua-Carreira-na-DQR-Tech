@@ -2,7 +2,7 @@
 # Aqui você pode encontrar aquela oportunidade que você estava esperando! 🧡🖤🤍
 
 Chega mais!
-Acesse nossas oportunidades em: https://dqrtech.com.br/oportunidades/
+Acesse nossas oportunidades em: https://www.dqrtech.com.br/para-profissionais/
 
 Tem curiosidade sobre nosso processo de seleção? 👇
 
